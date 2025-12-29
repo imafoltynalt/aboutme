@@ -15,4 +15,6 @@ Hey there! I'm **<ins> Imafoltyn_alt</ins>**. I am 14 this year (_"this year"_ i
 >   - Because I read through [<ins>Discord's Markdown Guide</ins>](https://support.discord.com/hc/en-us/articles/210298617-Markdown-Text-101-Chat-Formatting-Bold-Italic-Underline) and I know how to use Discord' Markdown
 
 ## How do you contact me?
-My Discord DM's are currently **OPEN**. You can contact me at https://discord.com/users/1383975560530759832. Alternatively, you can Email me at [<ins> My Email</ins>](https://mail.google.com/mail/u/0/#label/F%26HOS+Email+Inquiries?compose=DmwnWsltqCKwkgzxwdZJWQJSdnbMLVqgZGVMzchwgSpqBCZGLkXcVfXBbVFXBkFQVlgHDBRsBHMv)
+My Discord DM's are currently **OPEN**. You can contact me at https://discord.com/users/1383975560530759832. Alternatively, you can Email me at [<ins> My Email</ins>](https://mail.google.com/mail/u/0/#label/F%26HOS+Email+Inquiries?compose=DmwnWsltqCKwkgzxwdZJWQJSdnbMLVqgZGVMzchwgSpqBCZGLkXcVfXBbVFXBkFQVlgHDBRsBHMv).
+- Just make sure to not spam my emails/DMs. No inappropriate/18+ content.
+
